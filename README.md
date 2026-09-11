@@ -2,7 +2,7 @@
 
 # Identitas
 
-**Nama:** Ajebg Azmira Nur 
+**Nama:** Ajeng Azmira Nur 
 
 **NIM:** 2225250120
 
